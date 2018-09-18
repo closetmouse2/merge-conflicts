@@ -1,2 +1,2 @@
-Jade Baldwin dum lol
+Jade Baldwin is dum lol
 
